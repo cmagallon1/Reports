@@ -26,4 +26,16 @@ different fields like love, business, sports, etc. In each field the author desc
 of both personalities. Also the author gave us examples of other situations like labels, stereotypes, depression, shynes.
 People with fixed mindset tend to succumb, in case of stereotypes and labels, to comments done by others and lead to a 
 feeling of not belong where they are and thinking that they're bad in what they do, even when they receive feedback 
-they're agresive, because they're always looking for a way to prove his intelligence
+they're agresive, because they're always looking for a way to prove their intelligence. In case of shyness, when a 
+person try to get close with a fixed mindset person, this kind of people alwasy try to get people away, reaching a
+point where they even hurt the feelings of other people 
+and when fixed mindset people are depressed, they can be easily beaten.
+
+Grown mindset people are not affected by labels or stereotypes, when they're shy, and someone starts to talk with 
+them, after a few minutes they start to feel more confident and little by litte they're not shy anymore and in 
+depression, they're not affected, of course they've depression but they dont let themselves be defeated.
+
+## Advices 
+One of the most interesting parts of the books was a section of questions and answers, where the author explain more
+about this two mindsets but for me, this most important was know that we all can have both mindsets, we just have 
+to learn how to live with them and she gave us some tips in case of being fathers, coaches, etc.
